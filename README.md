@@ -1,3 +1,3 @@
-Demo files for CIT17 1st Trimester SY 2024-2025
-Use with you own discretion. Parental Advisory is Adviced.
-Per DTI Permit 0001- Series of 2024
+# CIT 18 2024-2025
+## A Repository na pagtaguan ng kayamanan ni yamashita kasi anak nya ako sa labas
+FLORES HANS HAROLD L. @2025 All Rights Reserved
